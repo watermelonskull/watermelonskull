@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @watermelonskull
-- 👀 I’m interested in Undertale/Deltarune
+- 👋 Hi, I’m @silligoobr
+- 👀 I’m interested in Undertale/Deltarune, Silksong, and other indie games
 - 🌱 I’m currently learning basic coding in school
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
